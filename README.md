@@ -1,2 +1,2 @@
 # SydneysMaths
-5, 6, 7 years old math
+5, 6, 7 year old math
